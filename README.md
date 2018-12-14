@@ -2,4 +2,4 @@
 
 ALL THE TOOLS IN BreachCompilation
 
-MAGNET TORRENT : magnet:?xt=urn:btih:7FFBCD8CEE06ABA2CE6561688CF68CE2ADDCA0A3&dn=BreachCompilation
+zntarg:?kg=hea:ogvu:7SSOPQ8PRR06NON2PR6561688PS68PR2NQQPN0N3&qa=OernpuPbzcvyngvba
